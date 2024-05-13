@@ -1,0 +1,1 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=600&size=22&pause=1000&color=2264F7&center=true&vCenter=true&random=true&width=435&lines=Robotics+engineer;Proficient+in+C%2FC%2B%2B+and+Python;Love+AI+%E2%9D%A4%EF%B8%8F;Work+in+the+field+of+security;I+look+forward+to+working+with+you+%F0%9F%AB%A1)](https://git.io/typing-svg)
